@@ -1,5 +1,5 @@
 
-Live : https://mekalaarunkumar16.github.io/MY-Portfolio/
+Live : https://adorable-paprenjak-4ac439.netlify.app/
 
 🚀 Welcome to my creative space where ideas come to life and innovation meets passion!
 
